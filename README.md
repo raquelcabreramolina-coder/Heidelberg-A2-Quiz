@@ -1,1 +1,0 @@
-# Heidelberg-A2-Quiz
